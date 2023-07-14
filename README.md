@@ -1,1 +1,0 @@
-# vladinomo.github.io
